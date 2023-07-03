@@ -7,9 +7,9 @@
 
 - 👯 I’m looking to collaborate on **Open-source Python projects**
 
-- 💬 Ask me about **Machine Learning, Data Analytics**
+- 💬 Ask me about **Machine Learning, Data Analytics, Apex Legends, Valorant**
 
-- 📫 How to reach me **work.chiragdevgade@gmail.com**
+- 📫 How to reach me: **BAT signal @3am or play NIGHTCALL by Kavinsky, I might show up**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
